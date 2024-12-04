@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @i-am-nat
+- 🌱 Born in 2007
+- 👀 My main interest is learning new languages and skills
+- 🫂 Always looking to meet new people! 
